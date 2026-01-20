@@ -1,0 +1,1 @@
+# ET-ICT-24-00047PracticalQuiz1
